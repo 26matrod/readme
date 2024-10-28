@@ -10,5 +10,4 @@
 ### entrar em contato
 @mateus_gk08
 
-![]![image](https://github.com/user-attachments/assets/ee73befc-bb1a-4223-a28d-2e854face6ab)
-
+![]https://tenor.com/pt-BR/view/cristiano-ronaldo-sigma-cr7-filtro-snapchat-gif-4452843105910668801
