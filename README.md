@@ -5,9 +5,9 @@
 - atleta nas horas vagas⚽️
 - estou estudando no [alura](https://www.alura.com.br)
 - estou me desenvolvendo na linguagem Javascript🖥🖱
-
+- de cia pro🌍
 -                                       
-### entrar em contato
+### entrar em contato☎️
 @mateus_gk08
 
 ![](https://media.tenor.com/A7NXd0k-opwAAAAi/troll-face.gif)
